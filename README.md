@@ -12,6 +12,9 @@ Pre-Sale
 
 Each of the NFTs will have a projected price of 100 XRP and its presale price would be 80 XRP.
 
+Project Creator
 
-First batch of Artificially Generated NFTs
+Jerrico Nikolae G Gejon - Founder | Developer
+Bryle Kim Angelio - Co-Founder | Marketing Manager
+Jison Golosinda - Artist
 
